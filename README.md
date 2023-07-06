@@ -19,6 +19,5 @@ Mauris neque quam, fermentum ut nisl vitae, convallis maximus nisl. Sed mattis n
 ### Comments (0)
 
 **Nguyễn Văn An** _(2 giờ trước)_
-
-Bài viết này rất hay! Mong sớm ra thêm nhiều bài hơn nữa.
+>> Bài viết này rất hay! Mong sớm ra thêm nhiều bài hơn nữa.
 
